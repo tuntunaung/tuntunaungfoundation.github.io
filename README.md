@@ -1,2 +1,2 @@
-# digitalequality.github.io
+# digitalequality.co
 Promoting digital equality in Myanmar
