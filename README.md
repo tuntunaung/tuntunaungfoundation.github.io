@@ -1,2 +1,2 @@
-# digitalequality.co
-Promoting digital equality in Myanmar
+# tuntunaung.org
+Tun Tun Aung Foundation
